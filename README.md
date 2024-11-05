@@ -1,5 +1,4 @@
-IF NOT BOYFRIENDS THEN WHY MATCHING CARDS???!!?!?!
-![](https://static.wikia.nocookie.net/ensemble-stars/images/8/86/%28Survival_and_Bravery%29_Tetora_Nagumo_CG2.png/revision/latest/scale-to-width-down/1000?cb=20201114170058)
-![](https://static.wikia.nocookie.net/ensemble-stars/images/2/2f/%28Survival_and_Combat%29_Koga_Oogami_CG2.png/revision/latest/scale-to-width-down/1000?cb=20201114170051) 
-iif not boyfriend theen whyyyy... whyyyyyyy,... 😭 (its literally just koga being worried about him like a normal friend would)
-![](https://i.postimg.cc/hv54dDmV/WAGGG.jpg)
+enstars hyperfixation
+tetora nerd sobs
+DRAW ON MY STRAWPAGE
+![](https://static.wikia.nocookie.net/ensemble-stars/images/a/a9/%28Survival_and_Bravery%29_Tetora_Nagumo_Chibi.gif/revision/latest?cb=20220915204742) ![](https://static.wikia.nocookie.net/ensemble-stars/images/f/f8/ES2_Azuki-san_Academy_Idol_Course_Sticker_Set_Keito.png/revision/latest?cb=20241101120607)
