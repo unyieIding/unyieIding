@@ -3,3 +3,5 @@
 enstars hyperfix gone wrong
 
 [atabook](https://gaelyboo.atabook.org/) [strawpage](https://tetsutiger.straw.page/)
+
+![](https://static.wikia.nocookie.net/ensemble-stars/images/e/e1/Bkubstars_LINE_Stickers_Set_3_Koga.png/revision/latest?cb=20220706162235)
