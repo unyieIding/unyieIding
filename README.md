@@ -3,6 +3,6 @@
 enstars hyperfix gone wrong
 (i love tetora nagumo)
 
-[atabook](https://gaelyboo.atabook.org/) [strawpage](https://tetsutiger.straw.page/)
+[atabook](https://gaelyboo.atabook.org/) [rentry](https://rentry.co/tetoranagumo)
 
 ![](https://static.wikia.nocookie.net/ensemble-stars/images/e/e1/Bkubstars_LINE_Stickers_Set_3_Koga.png/revision/latest?cb=20220706162235)
