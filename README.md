@@ -1,8 +1,8 @@
  ![](https://orig00.deviantart.net/2230/f/2017/107/8/2/enstars_stamp___tetora_nagumo_by_arashizu-db66v1r.png) ![](http://orig07.deviantart.net/2653/f/2016/278/2/5/ensta__by_hikaruyukihime-dajydzj.png) ![](http://orig00.deviantart.net/367e/f/2016/159/f/e/undead_stamp_by_airicchan-da5g3cu.jpg) ![](https://64.media.tumblr.com/5c3888f4c34423dc5a827825b6063314/c7a463c96abe38a0-c3/s1280x1920/b96c2a63bfe1abd1fe1b520f33246a9ef1d96a50.gifv)
 
 enstars hyperfix gone wrong
+
 PLEASE PLEASE PLEASE INTERACT WITH ME I NEVER START CONVOS FIRST  BUT PLEASEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEE I DONT BITE SOBS 
-either at docks or rhythm game area up the pjsk one
 
 [atabook](https://gaelyboo.atabook.org/) [rentry](https://rentry.co/tetoranagumo)
 
