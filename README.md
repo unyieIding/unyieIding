@@ -2,6 +2,7 @@
 
 enstars hyperfix gone wrong
 PLEASE PLEASE PLEASE INTERACT WITH ME I NEVER START CONVOS FIRST  BUT PLEASEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEE I DONT BITE SOBS 
+either at docks or rhythm game area up the pjsk one
 
 [atabook](https://gaelyboo.atabook.org/) [rentry](https://rentry.co/tetoranagumo)
 
