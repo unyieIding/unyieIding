@@ -2,7 +2,7 @@ turn me into a newgen to a famous star :(
 
 ![](https://komarev.com/ghpvc/?username=kurokeiyaoi&color=green)
 
-[atabook](https://gaelyboo.atabook.org/) [rentry](https://rentry.co/tetoranagumo)
+[atabook](https://gaelyboo.atabook.org/) [rentry](https://rentry.co/tetoranagumo) [tiktok](https://www.tiktok.com/@polyakatsuki)
 
 IF YOU SAW ANY OF MY COMMENTS ON PINTEREST NO YOU DIDNT IM SOBBINGG
 
