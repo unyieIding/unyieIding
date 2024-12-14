@@ -5,7 +5,6 @@
  All these views and barely any of u guys r signing my ata USELESS FREAKS
 [atabook](https://gaelyboo.atabook.org/) [rentry](https://rentry.co/tetoranagumo) [tiktok](https://www.tiktok.com/@polyakatsuki)
 
-IF YOU SAW ANY OF MY COMMENTS ON PINTEREST NO YOU DIDNT
 
 i have no dni, idgaf if an anti ints w me unless if u tell me that i deserve to get 🍇d or some shit
 
