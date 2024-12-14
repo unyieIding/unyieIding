@@ -1,9 +1,8 @@
-turn me into a newgen to a famous star :(
+<h1> turn me into a newgen to a famous star :(
 
 ![](https://komarev.com/ghpvc/?username=kurokeiyaoi&color=green)
 
-All these views and barely any of u guys r signing my ata USELESS FREAKS
-
+ All these views and barely any of u guys r signing my ata USELESS FREAKS
 [atabook](https://gaelyboo.atabook.org/) [rentry](https://rentry.co/tetoranagumo) [tiktok](https://www.tiktok.com/@polyakatsuki)
 
 IF YOU SAW ANY OF MY COMMENTS ON PINTEREST NO YOU DIDNT
