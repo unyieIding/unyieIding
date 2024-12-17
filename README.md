@@ -1,3 +1,4 @@
+![](https://pbs.twimg.com/media/Ea-4WCOWoAETT1d?format=jpg&name=large) 
 <h1> turn me into a newgen to a famous star :(
 
 ![](https://komarev.com/ghpvc/?username=kurokeiyaoi&color=green)
