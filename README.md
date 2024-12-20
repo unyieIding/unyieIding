@@ -5,34 +5,12 @@
  
 ![](https://komarev.com/ghpvc/?username=kurokeiyaoi&color=green)
 
-[atabook](https://gaelyboo.atabook.org/) [atabook](https://gaelyboo.atabook.org/)
-[atabook](https://gaelyboo.atabook.org/) [atabook](https://gaelyboo.atabook.org/)
-[atabook](https://gaelyboo.atabook.org/) [atabook](https://gaelyboo.atabook.org/)
-[atabook](https://gaelyboo.atabook.org/) [atabook](https://gaelyboo.atabook.org/)
-[atabook](https://gaelyboo.atabook.org/) [atabook](https://gaelyboo.atabook.org/)
-[atabook](https://gaelyboo.atabook.org/) [atabook](https://gaelyboo.atabook.org/)
-[atabook](https://gaelyboo.atabook.org/) [atabook](https://gaelyboo.atabook.org/)
-[atabook](https://gaelyboo.atabook.org/) [atabook](https://gaelyboo.atabook.org/)
-[atabook](https://gaelyboo.atabook.org/) [atabook](https://gaelyboo.atabook.org/)
-[atabook](https://gaelyboo.atabook.org/) [atabook](https://gaelyboo.atabook.org/)
-[atabook](https://gaelyboo.atabook.org/) [atabook](https://gaelyboo.atabook.org/)
+[strawpage](https://tetoratiger.straw.page/) [strawpage](https://tetoratiger.straw.page/) [strawpage](https://tetoratiger.straw.page/) [strawpage](https://tetoratiger.straw.page/) [strawpage](https://tetoratiger.straw.page/) [strawpage](https://tetoratiger.straw.page/) [strawpage](https://tetoratiger.straw.page/) [strawpage](https://tetoratiger.straw.page/) [strawpage](https://tetoratiger.straw.page/) [strawpage](https://tetoratiger.straw.page/) [strawpage](https://tetoratiger.straw.page/) [strawpage](https://tetoratiger.straw.page/) [strawpage](https://tetoratiger.straw.page/) [strawpage](https://tetoratiger.straw.page/) [strawpage](https://tetoratiger.straw.page/) [strawpage](https://tetoratiger.straw.page/) [strawpage](https://tetoratiger.straw.page/) [strawpage](https://tetoratiger.straw.page/) [strawpage](https://tetoratiger.straw.page/) [strawpage](https://tetoratiger.straw.page/) [strawpage](https://tetoratiger.straw.page/) [strawpage](https://tetoratiger.straw.page/) [strawpage](https://tetoratiger.straw.page/) [strawpage](https://tetoratiger.straw.page/) [strawpage](https://tetoratiger.straw.page/) [strawpage](https://tetoratiger.straw.page/) [strawpage](https://tetoratiger.straw.page/) [strawpage](https://tetoratiger.straw.page/) 
 
- All these views and barely any of u guys r signing my ata USELESS FREAKS
-[atabook](https://gaelyboo.atabook.org/) [rentry](https://rentry.co/tetoranagumo) [tiktok](https://www.tiktok.com/@polyakatsuki)
+ All these views and barely any of u guys r signing my strawpage USELESS FREAKS
+ [strawpage](https://tetoratiger.straw.page/) [atabook](https://gaelyboo.atabook.org/) [tiktok](https://www.tiktok.com/@polyakatsuki)
 
-[atabook](https://gaelyboo.atabook.org/) [atabook](https://gaelyboo.atabook.org/) 
-[atabook](https://gaelyboo.atabook.org/) [atabook](https://gaelyboo.atabook.org/)
-[atabook](https://gaelyboo.atabook.org/) [atabook](https://gaelyboo.atabook.org/)
-[atabook](https://gaelyboo.atabook.org/) [atabook](https://gaelyboo.atabook.org/)
-[atabook](https://gaelyboo.atabook.org/) [atabook](https://gaelyboo.atabook.org/)
-[atabook](https://gaelyboo.atabook.org/) [atabook](https://gaelyboo.atabook.org/)
-[atabook](https://gaelyboo.atabook.org/) [atabook](https://gaelyboo.atabook.org/)
-[atabook](https://gaelyboo.atabook.org/) [atabook](https://gaelyboo.atabook.org/)
-[atabook](https://gaelyboo.atabook.org/) [atabook](https://gaelyboo.atabook.org/)
-[atabook](https://gaelyboo.atabook.org/) [atabook](https://gaelyboo.atabook.org/)
-[atabook](https://gaelyboo.atabook.org/) [atabook](https://gaelyboo.atabook.org/)
-[atabook](https://gaelyboo.atabook.org/) [atabook](https://gaelyboo.atabook.org/)
-[atabook](https://gaelyboo.atabook.org/) [atabook](https://gaelyboo.atabook.org/)
-[atabook](https://gaelyboo.atabook.org/) [atabook](https://gaelyboo.atabook.org/)
+[strawpage](https://tetoratiger.straw.page/) [strawpage](https://tetoratiger.straw.page/) [strawpage](https://tetoratiger.straw.page/) [strawpage](https://tetoratiger.straw.page/) [strawpage](https://tetoratiger.straw.page/) [strawpage](https://tetoratiger.straw.page/) [strawpage](https://tetoratiger.straw.page/) [strawpage](https://tetoratiger.straw.page/) [strawpage](https://tetoratiger.straw.page/) [strawpage](https://tetoratiger.straw.page/) [strawpage](https://tetoratiger.straw.page/) [strawpage](https://tetoratiger.straw.page/) [strawpage](https://tetoratiger.straw.page/) [strawpage](https://tetoratiger.straw.page/) [strawpage](https://tetoratiger.straw.page/) [strawpage](https://tetoratiger.straw.page/) [strawpage](https://tetoratiger.straw.page/) [strawpage](https://tetoratiger.straw.page/) [strawpage](https://tetoratiger.straw.page/) [strawpage](https://tetoratiger.straw.page/) [strawpage](https://tetoratiger.straw.page/) [strawpage](https://tetoratiger.straw.page/) [strawpage](https://tetoratiger.straw.page/) [strawpage](https://tetoratiger.straw.page/) [strawpage](https://tetoratiger.straw.page/) [strawpage](https://tetoratiger.straw.page/) [strawpage](https://tetoratiger.straw.page/) [strawpage](https://tetoratiger.straw.page/)
+
 ![](https://pbs.twimg.com/media/Ea-4WCOWoAETT1d?format=jpg&name=large) 
 
