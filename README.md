@@ -11,7 +11,7 @@
  [strawpage](https://tetoratiger.straw.page/) [atabook](https://gaelyboo.atabook.org/) [tiktok](https://www.tiktok.com/@polyakatsuki) [rentry](https://rentry.co/tetoranagumo)
 
 [strawpage](https://tetoratiger.straw.page/) [strawpage](https://tetoratiger.straw.page/) [strawpage](https://tetoratiger.straw.page/) [strawpage](https://tetoratiger.straw.page/) [strawpage](https://tetoratiger.straw.page/) [strawpage](https://tetoratiger.straw.page/) [strawpage](https://tetoratiger.straw.page/) [strawpage](https://tetoratiger.straw.page/) [strawpage](https://tetoratiger.straw.page/) [strawpage](https://tetoratiger.straw.page/) [strawpage](https://tetoratiger.straw.page/) [strawpage](https://tetoratiger.straw.page/)
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=3166msylsg5i2b5lwupzv742nbni&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=true&bar_color=53b14f&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=3166msylsg5i2b5lwupzv742nbni&redirect=true)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=3166msylsg5i2b5lwupzv742nbni&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=true&bar_color=53b14f&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=3166msylsg5i2b5lwupzv742nbni&redirect=true) [strawpage](https://tetoratiger.straw.page/) [strawpage](https://tetoratiger.straw.page/) [strawpage](https://tetoratiger.straw.page/) [strawpage](https://tetoratiger.straw.page/)
 
 ![](https://pbs.twimg.com/media/GIui65ea4AAnqCu?format=jpg&name=large) ![](https://pbs.twimg.com/media/GIui65bagAAHuzC?format=jpg&name=large)
 
