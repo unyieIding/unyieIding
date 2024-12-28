@@ -2,7 +2,7 @@
   ![](https://i.postimg.cc/prGzr7PX/space.png)  ![](https://i.postimg.cc/prGzr7PX/space.png)  ![](https://i.postimg.cc/prGzr7PX/space.png)   ![](https://i.postimg.cc/prGzr7PX/space.png)  ![](https://i.postimg.cc/prGzr7PX/space.png)  ![](https://i.postimg.cc/prGzr7PX/space.png)   ![](https://i.postimg.cc/prGzr7PX/space.png)  ![](https://i.postimg.cc/prGzr7PX/space.png)  ![](https://i.postimg.cc/prGzr7PX/space.png)   ![](https://i.postimg.cc/prGzr7PX/space.png)  ![](https://i.postimg.cc/prGzr7PX/space.png)
 # [strawpage](https://tetoratiger.straw.page/)   
 
-![](https://static.wikia.nocookie.net/ensemble-stars/images/a/aa/%28Hot-Blooded_Dragon%29_Tetora_Nagumo_Chibi.gif/revision/latest?cb=20240405085939)![](https://static.wikia.nocookie.net/ensemble-stars/images/c/cf/%28Valiant_Dragon%29_Kuro_Kiryu_Chibi.gif/revision/latest?cb=20240405091049)
+![](https://i.postimg.cc/W4jCqN15/ezgif-4-545c67c2df-1.gif) ![](https://i.postimg.cc/6QfsM7Ps/ezgif-4-b4e85fb5f7-1.gif)
 
 ![](https://i.postimg.cc/rFB9zfwj/IMGONNAKILLMYSELF.png)
 ![](https://i.postimg.cc/RZwLtw3B/imsobbing.png)
