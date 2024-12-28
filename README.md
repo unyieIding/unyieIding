@@ -9,6 +9,7 @@
 
 ![](https://i.postimg.cc/Dzd691Fg/sssssdasdad.png)
 ![](https://i.postimg.cc/9FYGFCsm/whatt.png)
+
  LORDDDDDDDDDDDDD SEDATE ME I WISH THEM THE WORST
  
  [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=3166msylsg5i2b5lwupzv742nbni&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=true&bar_color=53b14f&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=3166msylsg5i2b5lwupzv742nbni&redirect=true)
