@@ -1,6 +1,6 @@
 
   ![](https://i.postimg.cc/prGzr7PX/space.png)  ![](https://i.postimg.cc/prGzr7PX/space.png)  ![](https://i.postimg.cc/prGzr7PX/space.png)   ![](https://i.postimg.cc/prGzr7PX/space.png)  ![](https://i.postimg.cc/prGzr7PX/space.png)  ![](https://i.postimg.cc/prGzr7PX/space.png)   ![](https://i.postimg.cc/prGzr7PX/space.png)  ![](https://i.postimg.cc/prGzr7PX/space.png)  ![](https://i.postimg.cc/prGzr7PX/space.png)   ![](https://i.postimg.cc/prGzr7PX/space.png)  ![](https://i.postimg.cc/prGzr7PX/space.png)
-# [strawpage](https://tetoratiger.straw.page/)   sign my strawpage to feed my 12 kids
+# [rentry](https://rentry.co/tetoranagumo) . [strawpage](https://tetoratiger.straw.page/) rentry is for actual info.. strawpage is for drawings
 
 ![](https://i.postimg.cc/W4jCqN15/ezgif-4-545c67c2df-1.gif) ![](https://i.postimg.cc/6QfsM7Ps/ezgif-4-b4e85fb5f7-1.gif)
 
