@@ -1,6 +1,6 @@
 ![](https://files.catbox.moe/uxcv5j.png) 
 
-# [rentry](https://rentry.co/chiakuro) | [sign my atabook, if you wish . . ](https://pregnantsouma.atabook.org/)
+# [rentry](https://rentry.co/chiakuro) | [sign my atabook, if you wish . . ](https://losergirlsamurai.atabook.org/)
  
  ![](https://media1.tenor.com/m/ueKP6n4oUjcAAAAd/souma-kanzaki-kanzaki-souma.gif)
 
