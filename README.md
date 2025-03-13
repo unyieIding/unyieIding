@@ -1,9 +1,5 @@
-![](https://files.catbox.moe/uxcv5j.png) 
 
-# [rentry](https://rentry.co/chiakuro) | [sign my atabook, if you wish . . ](https://losergirlsamurai.atabook.org/)
- 
- ![](https://media1.tenor.com/m/ueKP6n4oUjcAAAAd/souma-kanzaki-kanzaki-souma.gif)
+https://github.com/user-attachments/assets/2e815801-07bd-45c1-b55e-c2ffadeb15c6
 
- [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=3166msylsg5i2b5lwupzv742nbni&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=true&bar_color=53b14f&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=3166msylsg5i2b5lwupzv742nbni&redirect=true)
- 
- ![](https://files.catbox.moe/tu9e5i.png)
+
+
