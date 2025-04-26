@@ -8,5 +8,6 @@ main interests: vocaloid,enstars,rdr2
 
 ![](https://media1.tenor.com/m/6BL9HTCk3QMAAAAC/rdr2-rdr2-skibidi.gif)
 
-### [rentry](https://rentry.co/tetoranagumo) ![](https://files.catbox.moe/h4xgvd.webp) [atabook](https://losergirlsamurai.atabook.org/)
+### [rentry](https://rentry.co/tetoranagumo)  ![](https://files.catbox.moe/h4xgvd.webp)  [atabook](https://losergirlsamurai.atabook.org/)
+![](https://static.wikia.nocookie.net/ensemble-stars/images/8/82/Last_Period_Tetora_M_Idle.gif/revision/latest?cb=20250319075409)
 
