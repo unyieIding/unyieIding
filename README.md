@@ -4,6 +4,7 @@ akatsuki is 3, and will forever be 3
 
 no dni except people who dislike/hate power up ryuseitai
 
+main interests: vocaloid,enstars,rdr2
 
 
 
