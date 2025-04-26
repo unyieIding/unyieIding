@@ -10,4 +10,6 @@ main interests: vocaloid,enstars,rdr2
 
 ### [rentry](https://rentry.co/tetoranagumo)  ![](https://files.catbox.moe/h4xgvd.webp)  [atabook](https://losergirlsamurai.atabook.org/)
 
+![](https://i.postimg.cc/59BJj6mD/ezgif-7378138b6ecc91.webp)
+
 
