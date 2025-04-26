@@ -6,6 +6,7 @@ no dni except people who dislike/hate power up ryuseitai
 
 main interests: vocaloid,enstars,rdr2
 
+![](https://media1.tenor.com/m/6BL9HTCk3QMAAAAC/rdr2-rdr2-skibidi.gif)
 
 
 
