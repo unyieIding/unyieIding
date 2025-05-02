@@ -1,4 +1,4 @@
-# only 2 ponies i use i fear </3
+# the only 2 ponies i use i fear </3
 ![](https://i.postimg.cc/c4q8pDZy/pony-town-tetora-enstars-sign-ata-plss-stand-cry-bg-4x.gif) ![](https://i.postimg.cc/NG2HC33k/pony-town-hi-stand-cry-bg-4x.gif)
 # i believe in tetokoganaru ![](https://files.catbox.moe/pujkxa.png)![](https://files.catbox.moe/psjip1.png)![](https://files.catbox.moe/9h98uv.png) 
 # [rentry](https://rentry.co/tetoranagumo) | [atabook](https://tetora.atabook.org/)
