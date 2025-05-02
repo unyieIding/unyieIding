@@ -1,6 +1,6 @@
-![](https://media1.tenor.com/m/IXuQyHwKcnwAAAAd/tetora-nagumo.gif)
+# only 2 ponies i use i fear
+![](https://i.postimg.cc/c4q8pDZy/pony-town-tetora-enstars-sign-ata-plss-stand-cry-bg-4x.gif) ![](https://i.postimg.cc/NG2HC33k/pony-town-hi-stand-cry-bg-4x.gif)
 # i believe in tetokoganaru ![](https://files.catbox.moe/pujkxa.png)![](https://files.catbox.moe/psjip1.png)![](https://files.catbox.moe/9h98uv.png) 
-# cringe but free
 # [rentry](https://rentry.co/tetoranagumo) | [atabook](https://tetora.atabook.org/)
 # dont mess with my CLAN
 ![](https://media.tenor.com/-o8m-4venVkAAAAi/tiger.gif) ![](https://media.tenor.com/-o8m-4venVkAAAAi/tiger.gif)![](https://media.tenor.com/-o8m-4venVkAAAAi/tiger.gif)![](https://media.tenor.com/-o8m-4venVkAAAAi/tiger.gif)![](https://media.tenor.com/-o8m-4venVkAAAAi/tiger.gif)![](https://media.tenor.com/-o8m-4venVkAAAAi/tiger.gif)![](https://media.tenor.com/-o8m-4venVkAAAAi/tiger.gif)![](https://media.tenor.com/-o8m-4venVkAAAAi/tiger.gif)![](https://media.tenor.com/-o8m-4venVkAAAAi/tiger.gif)![](https://media.tenor.com/-o8m-4venVkAAAAi/tiger.gif)![](https://media.tenor.com/-o8m-4venVkAAAAi/tiger.gif)![](https://media.tenor.com/-o8m-4venVkAAAAi/tiger.gif)![](https://media.tenor.com/-o8m-4venVkAAAAi/tiger.gif)![](https://media.tenor.com/-o8m-4venVkAAAAi/tiger.gif)
