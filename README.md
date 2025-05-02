@@ -1,4 +1,5 @@
-![](https://rentryyyygael.carrd.co/assets/images/image36.png?v=61c569bc)
-[![](https://images.cooltext.com/5729800.png)](https://rentry.co/tetoranagumo)
-![](https://rentryyyygael.carrd.co/assets/images/image37.png?v=61c569bc)
-![](https://rentryyyygael.carrd.co/assets/images/image35.png?v=61c569bc) 
+![](https://media1.tenor.com/m/IXuQyHwKcnwAAAAd/tetora-nagumo.gif)
+# i believe in tetokoganaru
+# [rentry](https://rentry.co/tetoranagumo)
+# dont mess with my CLAN
+![](https://media.tenor.com/-o8m-4venVkAAAAi/tiger.gif) ![](https://media.tenor.com/-o8m-4venVkAAAAi/tiger.gif)![](https://media.tenor.com/-o8m-4venVkAAAAi/tiger.gif)![](https://media.tenor.com/-o8m-4venVkAAAAi/tiger.gif)![](https://media.tenor.com/-o8m-4venVkAAAAi/tiger.gif)![](https://media.tenor.com/-o8m-4venVkAAAAi/tiger.gif)![](https://media.tenor.com/-o8m-4venVkAAAAi/tiger.gif)![](https://media.tenor.com/-o8m-4venVkAAAAi/tiger.gif)![](https://media.tenor.com/-o8m-4venVkAAAAi/tiger.gif)![](https://media.tenor.com/-o8m-4venVkAAAAi/tiger.gif)![](https://media.tenor.com/-o8m-4venVkAAAAi/tiger.gif)![](https://media.tenor.com/-o8m-4venVkAAAAi/tiger.gif)![](https://media.tenor.com/-o8m-4venVkAAAAi/tiger.gif)![](https://media.tenor.com/-o8m-4venVkAAAAi/tiger.gif)
