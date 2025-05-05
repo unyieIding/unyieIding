@@ -1,3 +1,4 @@
-![](https://iwantbreakfast.carrd.co/assets/images/image05.png?v=f2e1c6b3)
+
 mainly enstarspilled my bad
 # [carrd](https://adritetokoga.carrd.co/) | [atabook](https://tetora.atabook.org/) 
+![](https://i.pinimg.com/736x/9c/45/34/9c45348f19fcb2ed3f190d6e2a023a59.jpg)
