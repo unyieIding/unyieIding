@@ -1,3 +1,3 @@
 
-![](https://kuromiii.carrd.co/assets/images/image01.gif?v27496518374651) 
+![](https://iloveyeeun.carrd.co/assets/images/image01.png?v48934892508951)
 # [carrd](https://gentleromance.carrd.co/) 
