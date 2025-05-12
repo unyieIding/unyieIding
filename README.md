@@ -1,5 +1,4 @@
-
-# i love love love tigers and tiger themed characters hmu in my strawpage if you know tiger themed characters :(
-# 2d rhythm game enjoyer
-# [strawpage](https://adritetokoga.straw.page/)
-![](https://static.wikia.nocookie.net/ensemble-stars/images/b/bc/ES2_Adorable_Little_Idols%21_Set_3_Tetora.png/revision/latest?cb=20231127171816)
+![](https://i.postimg.cc/VNSMgxSZ/29-Tetora-Nagumo-CG.png)
+## 　　　　　　　　　　　　　　　　　　[strawpage](https://adritetokoga.straw.page/)
+### my personality depends on yours, i am always free to c+h and interacting unless if my pony shakes its head .
+### i am trying SO hard to be nonchalant im not vro.
