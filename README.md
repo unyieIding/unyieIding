@@ -4,4 +4,3 @@
 #### learning artist.. bare with me okai..
 
 ![](https://i.postimg.cc/NfYwXnp1/174706496136593654.png)
- 　　　　　　　　　　　　　　　　　  　　　　　　　　　　　　　　　　　　　![](https://i.postimg.cc/NG89jDqn/pony-town-adrian-yumesona-sign-sp-sit-4x.png)
