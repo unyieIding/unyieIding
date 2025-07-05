@@ -1,6 +1,5 @@
-![](https://64.media.tumblr.com/4891270d8bcfecc9a85cee24b4b45f10/0488966c5593f558-c1/s1280x1920/3edeed0799413ad7c9b9a813536d29ec8fb54ab4.jpg)
-# rentry will be remade soon, check back later
-# fer now just have the old one: https://rentry.co/tetoranagumo
-![](https://static.wikia.nocookie.net/ensemble-stars/images/f/f4/Bkubstars_LINE_Stickers_Set_1_Tetora.png/revision/latest?cb=20210702145125)
-![](https://64.media.tumblr.com/5c32cc3fb9d9f245ae4b91cbb8ed0220/0488966c5593f558-86/s1280x1920/3600830d78fec1b12e89d4ddf78382efefe44e55.jpg)
+# have the old rentry layout for now im remaking it when i get the motivation: https://rentry.co/tetoranagumo
+# Hi ponytown you're mainly gonna see me in these ponies
+![](https://i.postimg.cc/Wbg1NSkn/pony-town-enstars-koga-oogami-laugh-toy200-4x-2.gif) ![](https://i.postimg.cc/tJ6m6s3K/pony-town-kuro-kiryu-enstars-sneeze-4x.gif) ![](https://i.postimg.cc/dQZfpxb5/pony-town-tetora-18-dont-touch-tail-lie-4x-1.png)
+# Enstarries intwc cause im geniunely so awkward with other enstarries im sorry.
 
