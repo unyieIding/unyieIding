@@ -1,4 +1,4 @@
-![](https://i.postimg.cc/WzzXJGGV/pony-town-kill-kaoru-hakaze-lie-4x.png)
+![](https://i.postimg.cc/VLxPmvwv/pony-town-tetora-awwww-isnt-he-so-cute-lie-4x.png)
 # [ATABOOK](https://tetora.atabook.org/) ![](https://files.catbox.moe/b0szfy.gif) [RENTRY](https://rentry.co/tetoranagumo)
 ![](https://static.wikia.nocookie.net/ensemble-stars/images/1/19/Last_Period_Tetora_Nagumo_Mini_Icon_1.png/revision/latest?cb=20250318062310)
 # My name is gael i like tetora nagumo im his number one fan and hes my whole personality Nice to meet you
