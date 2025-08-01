@@ -4,5 +4,5 @@
 
 ![](https://files.catbox.moe/qumnuk.png) ![](https://files.catbox.moe/bivgf7.png) ![](https://files.catbox.moe/vnd5f4.png)
 
-![](https://media1.tenor.com/m/9h-qKVmcG1AAAAAC/markiplier-confetti.gif)
+![](https://i.redd.it/i-drew-a-comically-small-long-markiplier-even-god-will-not-v0-0m5f9rcxeyla1.jpg?width=463&format=pjpg&auto=webp&s=0eaf20f3b7b996114c4bac8cdd79d14820869502)
  
