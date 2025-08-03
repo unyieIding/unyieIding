@@ -1,8 +1,2 @@
-### [Rentry i guess.](https://rentry.co/be)
-# [ATABOOK](https://tetora.atabook.org/) [ATABOOK](https://tetora.atabook.org/) [ATABOOK](https://tetora.atabook.org/) [ATABOOK](https://tetora.atabook.org/) [ATABOOK](https://tetora.atabook.org/) [ATABOOK](https://tetora.atabook.org/) [ATABOOK](https://tetora.atabook.org/)
-
-# [ATABOOK](https://tetora.atabook.org/) [ATABOOK](https://tetora.atabook.org/) [ATABOOK](https://tetora.atabook.org/) [ATABOOK](https://tetora.atabook.org/) [ATABOOK](https://tetora.atabook.org/) [ATABOOK](https://tetora.atabook.org/) [ATABOOK](https://tetora.atabook.org/)
-
-# [ATABOOK](https://tetora.atabook.org/) [ATABOOK](https://tetora.atabook.org/) [ATABOOK](https://tetora.atabook.org/) [ATABOOK](https://tetora.atabook.org/) [ATABOOK](https://tetora.atabook.org/) [ATABOOK](https://tetora.atabook.org/) [ATABOOK](https://tetora.atabook.org/)
-
-![](https://media.tenor.com/fdo-vnegQqUAAAAi/fire-fire-emote.gif)![](https://media.tenor.com/fdo-vnegQqUAAAAi/fire-fire-emote.gif)![](https://media.tenor.com/fdo-vnegQqUAAAAi/fire-fire-emote.gif)![](https://media.tenor.com/fdo-vnegQqUAAAAi/fire-fire-emote.gif)![](https://media.tenor.com/fdo-vnegQqUAAAAi/fire-fire-emote.gif)![](https://media.tenor.com/-o8m-4venVkAAAAi/tiger.gif) ![](https://media.tenor.com/RCQgbxVWhYgAAAAj/discord-discordgifemoji.gif) ![](https://media.tenor.com/RCQgbxVWhYgAAAAj/discord-discordgifemoji.gif) ![](https://media.tenor.com/RCQgbxVWhYgAAAAj/discord-discordgifemoji.gif) ![](https://media.tenor.com/RCQgbxVWhYgAAAAj/discord-discordgifemoji.gif) ![](https://media.tenor.com/RCQgbxVWhYgAAAAj/discord-discordgifemoji.gif) ![](https://media.tenor.com/RCQgbxVWhYgAAAAj/discord-discordgifemoji.gif) ![](https://media.tenor.com/RCQgbxVWhYgAAAAj/discord-discordgifemoji.gif) ![](https://media.tenor.com/RCQgbxVWhYgAAAAj/discord-discordgifemoji.gif) 
+![](https://media.tenor.com/xvrbyL2VzdcAAAAj/atsushi-bsd.gif)
+###### [rentry](https://rentry.co/be) ![](https://files.catbox.moe/k9lxwq.gif) [atabook](https://tetora.atabook.org/)
