@@ -1,7 +1,9 @@
-![](https://i.postimg.cc/LXX80g7c/Untitled310-20250810190905.png)
-### [strawpage](https://nagumoweb.straw.page) ![image](https://github.com/user-attachments/assets/6b985c70-a766-4fc4-9f90-a89940ee30da)
+![](https://spongebo.carrd.co/assets/images/image23.png?v=8265ec48)
+
+![](https://spongebo.carrd.co/assets/images/image30.png?v=8265ec48)
 ![](https://files.catbox.moe/mtiei0.gif)
+### [strawpage](https://nagumoweb.straw.page) ![image](https://64.media.tumblr.com/9df20a3291484649612edbd7353d6322/05e51809ca144598-4c/s100x200/f89c05311b471ee3980c49fe7b8e5b3a7fb2a63e.gifv)
 
-![](https://i.postimg.cc/WpFxS0Tc/68747470733a2f2f692e706f7374696d672e63632f776a584d74704c472f556e7469746c65643331332d3230323530383131.png)
+![](https://spongebo.carrd.co/assets/images/image19.png?v=8265ec48)
 
-![](https://i.postimg.cc/cJTJmBD7/Untitled310-20250810190857.png)
+![](https://spongebo.carrd.co/assets/images/image17.png?v=8265ec48)
