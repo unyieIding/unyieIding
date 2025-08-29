@@ -1,1 +1,3 @@
-![](https://64.media.tumblr.com/e3b6b537db4fe3d7527270bacb9a7b6f/0a399d052cce895a-00/s2048x3072/d0afdc250cd034a82d331758f366d7cb98938e80.jpg)
+###### ac: mighteenyx on tumblr
+![](https://i.postimg.cc/3rf38szB/ezgif-46d8dca1acac22.jpg)
+###### [strawpage](https://nagumoweb.straw.page/)
