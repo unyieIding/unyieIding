@@ -1,3 +1,3 @@
-###### ac: mighteenyx on tumblr
-![](https://i.postimg.cc/3rf38szB/ezgif-46d8dca1acac22.jpg)
-#### [rentry](https://rentry.co/be) . [atabook](https://tetora.atabook.org/)
+# [rentry](https://rentry.co/be) . [atabook](https://tetora.atabook.org/)
+![](https://i.pinimg.com/1200x/5c/77/43/5c7743b1728259bd196c3f311ded1ec6.jpg)
+
