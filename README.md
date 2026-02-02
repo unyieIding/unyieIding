@@ -5,5 +5,4 @@
 #### I REALLY like tankmen,eddsworld,picos school,south park,gta 5, rdr2 and ghost of tsushima. I'm currently getting into until dawn. theres more but these are my main interests. im also getting into postal and im loving it so far, im also planning on getting into bully and manhunt 1 amd 2 !!
 #### im mainly either afking at docks,playing a minigame or fucking around with my 2 friends
 ![](https://static.wikia.nocookie.net/ensemble-stars/images/1/1c/%28Underdoctor%29_Kuro_Kiryu_Chibi.gif/revision/latest?cb=20210704184315)
-
-
+# TETORA NAGUMOS BIGGEST FAN I HAVE LIKE 32 PONIES OF HIM
